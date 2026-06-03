@@ -1,4 +1,4 @@
-# 
+# Avançado sushiswap trading bot complementos para Mac OS | Profissional sushiswap trading bot complementos para PC Windows. Com negociação de futuros e monitoramento de baixa frequência — otimizado para máximo desempenho em cada plataforma.
 
 
 
